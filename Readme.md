@@ -1,1 +1,1 @@
-Ai powered enzyme engineering.
+AI powered enzyme engineering.
